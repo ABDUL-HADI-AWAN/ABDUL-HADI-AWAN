@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning GEN AI.
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me EMAIL:a03142123400@gmail.com
-- 😄 Pronouns:
+- 😄 Pronouns:HE/HIM
 - ⚡ Fun fact:passion:DO CODING.
 
 <!---
